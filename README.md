@@ -1,3 +1,15 @@
+<h1 align="center">
+  ⚡ ChrisKlegarYoag ⚡
+</h1>
+
+<h3 align="center">
+  &lt;/&gt; Code • Rhythm • Creativity • Growth
+</h3>
+
+<p align="center">
+  <i>Still Learning • Still Building • Still Becoming</i>
+</p>
+
 <p align="center">
   <img src="./assets/Kleg.gif" alt="X10 THINK animated coding banner" width="100%" />
 </p>
