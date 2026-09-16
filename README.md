@@ -1,5 +1,5 @@
 # 💫 About Me:
-🙏 God first, in every step |<br>✝️ Walking by faith, not by sight |<br>💻 Turning ideas into code |<br>🚀 Building my future, one line at a time |<br>❤️ Taken & loyal to one |<br>🎵 Music isn't a hobby, it's a part of me |<br>🥁 Rhythm running through my veins |<br>🎧 Lost in sounds, found in melodies |<br>📚 Learning. Growing. Becoming. |<br>🌱 Growing quietly, building patiently |<br>🔥 No shortcuts, just consistency |<br>✨ Becoming the person I prayed to be.<br>
+🙏 God first, in every step | ✝️ Walking by faith, not by sight | 💻 Turning ideas into code | 🚀 Building my future, one line at a time | ❤️ Taken & loyal to one | 🎵 Music isn't a hobby, it's a part of me | 🥁 Rhythm running through my veins | 🎧 Lost in sounds, found in melodies | 📚 Learning. Growing. Becoming. | 🌱 Growing quietly, building patiently | 🔥 No shortcuts, just consistency | ✨ Becoming the person I prayed to be.
 
 
 ## 🌐 Socials:
