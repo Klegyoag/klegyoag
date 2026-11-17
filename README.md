@@ -15,7 +15,7 @@
 </p>
 
 # 💫 About Me:
-🙏 God first, in every step | ✝️ Walking by faith, not by sight | 💻 Turning ideas into code | 🚀 Building my future, one line at a time | ❤️ Taken & loyal to one | 🎵 Music isn't a hobby, it's a part of me | 🥁 Rhythm running through my veins | 🎧 Lost in sounds, found in melodies | 📚 Learning. Growing. Becoming. | 🌱 Growing quietly, building patiently | 🔥 No shortcuts, just consistency | ✨ Becoming the person I prayed to be.
+🙏 God first, in every step | ✝️ Walking by faith, not by sight | 💻 Turning ideas into code | 🚀 Building my future, one line at a time | 🎵 Music isn't a hobby, it's a part of me | 🥁 Rhythm running through my veins | 🎧 Lost in sounds, found in melodies | 📚 Learning. Growing. Becoming. | 🌱 Growing quietly, building patiently | 🔥 No shortcuts, just consistency | ✨ Becoming the person I prayed to be.
 
 
 ## 🌐 Socials:
